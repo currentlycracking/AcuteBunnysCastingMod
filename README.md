@@ -1,2 +1,5 @@
 # AcuteBunnysCastingMod
-cracked by @currentlycracking &amp; @l_is_best
+cracked by @currentlycracking
+src by @currentlycracking
+
+releasing more soon! 
